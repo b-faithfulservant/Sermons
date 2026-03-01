@@ -46,4 +46,35 @@ Spiritual Gifts
 7 To each is given the manifestation of the Spirit **for the common good**.
 
 
-What God put in you, was never about you.
+What God put in you, was never about you.  So, when you put yourself between the call and the assignment, you delay someone else's blessing.  How do you know that there are people in this world desperate for a blessing and every time you say "Nah, I'm good", you delay someone's blessing.  God wants to work a mighty thing through you and all He needs is your submission.  While you're stuck in I can't, I don't wanna, and I don't like, God is saying, "Look, I need to take you to places you don't want to go so that I can work the things you never imagined."
+
+
+Ephesians 2:10
+10 For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them.
+
+
+And when we allow our disobedience to delay God's potential we put God in the position of having to bring us into alignment.  The All Mighty God, the Lord of Hosts, who doesn't need a single one of us, who speaks things into being, still cares to work with us; to grow us; to build us into the best version of ourselves.  And yet, he allows us to run from or avoid it like children.  And such was the case with Jonah.  "I don't want to go there.  I don't like those people.  They don't vote the same as I do.  They don't listen to the same music.  The dress funny.  They don't speak the same language.  They don't believe in the same God."
+
+It's said that some people struggle with the story of Jonah because of how he was brought back into alignment.  God used extreme measures.  Maybe those measures just matched the gravity of the task; of the potential.  It's said that people struggle with it because it sounds fictitious.  I think that's because of how we are groomed to visualize Jonah in the belly of the whale as children.  We're given this image of Jonah riding in the belly of the whale almost as if it were a taxi.  The whale is the old testament Uber.  When the fact is Jonah was clinging to life in the belly of that whale.  He was covered in the vines of whatever else that whale was eating and on the verge of death.
+
+* Shark attack story
+
+
+Jonah 1:7-10
+
+7 When my life was fainting away,  
+I remembered the LORD,  
+and my prayer came to you,  
+into your holy temple.  
+8 Those who pay regard to vain idols  
+forsake their hope of steadfast love.  
+9 But I with the voice of thanksgiving  
+will sacrifice to you;  
+what I have vowed I will pay.  
+Salvation belongs to the LORD!”  
+10 And the LORD spoke to the fish, and it vomited Jonah out upon the dry land. 
+
+
+Jonah travels to Nineveh, speaks, and the people (even the king) repent.  Chapter 3 is so small.  It wasn't even that big of a task, but God tells us over 120,000 people were saved.
+
+
