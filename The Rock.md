@@ -1,7 +1,10 @@
 
 
 **Prayer**
+Father God, I thank you for the blessing of this day, for the souls you have brought underneath the sound of my voice, and for the message you have brought to them.  And I thnk you for allowing me to be your willing servant this morning.  I ask that you remove anything from my heart, mouth, and thoughts that is not of you and allow all my members to work in submission to you.
+
 **Thank the Pastor for the opportunity**
+
 **Direct everyone to the online notes**
 
 
@@ -151,7 +154,13 @@ Thankfully Jesus restores broken people and entrusts them with His mission
 
 
 ## Closing
-A funny thing about Rocks.  Cracks in rocks are called fractures or discontinuities that can form due to various geological processes such as stress, cooling, or tectonic activity. They can significantly influence the behavior of rocks under stress and play a crucial role in the development of faults and folds in geological formations...Understanding crack patterns helps geologists predict how rock formations will respond to applied stress. 
+A funny thing about Rocks.  Cracks in rocks are called fractures or discontinuities.  And these fractures and discontinuities can form due to various geological processes such as cooling, tectonic activity, or stress. They can significantly influence the behavior of rocks under stress and play a crucial role in the development of faults and folds in geological formations...Understanding crack patterns helps geologists predict how rock formations will respond to applied stress. 
+
+Amen.  Peter came into contact with the supreme geologist.  The one who created rocks; the who see's every crack, every fracture, every discontinuity, every impurity, every weakness, every fault, every strain; The one who knows the reason and cause of the fault and knows what is too much to bear; The one who knows exactly where pressure should be applied to chip away the undesired pieces to fashion the most beautiful stone.
+
+Amen.  Peter cam into contact with the one who giving a name, gives purpose, and is able to bring about that purpose.  Someone onece said, God does not call the equipped, he equips the call.
+
+Jesus knew that Peter was a man that could fall on his face a thousand times and continue to get up and move towards hope.  I understand why I was so drwan to Peter so long ago.  I can identify with Peter.  Game recognize game.  I understand a self-confidence that sommetimes falls apart.  I know what it is to at times think you're on the right path and find yet find yourself misaligned.
 
 
 
