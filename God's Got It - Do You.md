@@ -123,3 +123,18 @@ This is Suzie.
 			* God encourages us to remember who he is through our previous experience.
 			* He tells us that he not only see's all of time, but it's the fruit of his hands.
 			* And he does it for who's purpose?  His purpose.
+ 
+ This is where I think about Paul.  We understand that God has his part covered.  We believe.  We state that we have faith.  But we often look for God to be our life vest vs our ever present help.  I believe we often get ourselves into trouble by calling on God when we're in trouble and thereby expecting him to deliver our desired result.  So, how do we deal with a God that guides us through the troubles but who's plans are not our plans; whose ways are not our ways.  
+
+ And so the first person that comes to my mind is Paul.
+ * Paul who was a born in Tarsus and thus a Roman Citizen.  Paul then was privilidged, educated, and an expert in the Law.
+ * We know that Paul persecuted Christians but God had a different path for him.  God had a change of plans.
+ * God, intervened in Pauls life in a powerful and impactful way, blinding him for 3 days and restoring him through Ananias.
+ * Paul who's life became dedicated to the service of the Lord and most certainly faced trials
+ * Things got so bad for Paul that he had to escape Demascus in a basket.
+ * Despite the challenges and how rough the road was, Paul stayed dedicated to the ministry; He conducted 3 great missionary journeys and the Lord changed the world forever through him.
+ * Despite Pauls dedication and service. Paul suffered greatly to the point martyrdom.
+
+So I ask myself the question.  How does Paul who suffered so much.
+
+* Paul never forgot what Christ did for him.
